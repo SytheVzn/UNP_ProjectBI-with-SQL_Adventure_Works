@@ -16,4 +16,4 @@ Key Highlights:
 
 SQL file Link : https://drive.google.com/file/d/1yKPtBLfpiz9o70R1B_BQLTE8nP1r5jzv/view?usp=drive_link
 
-PDF Link : https://drive.google.com/file/d/1s5_q2Oj1odwiwLHczsmkq37CV8_yxMI-/view?usp=drive_link
+PDF Link : https://drive.google.com/file/d/1Uef67s5hB8ItfKMraCuOnp9mlGL-99Bv/view?usp=drive_link
